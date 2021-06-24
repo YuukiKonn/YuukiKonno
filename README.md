@@ -1,2 +1,2 @@
-# YuukiKonno
+# Yuuki Konno
 Yuuki Konno
